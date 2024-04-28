@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning python
 - 🌱 I’m currently learning in college 
 - 💞️ I’m looking to collaborate on who starts studying python 
-- 📫 How to reach me,by my email drom6655@gmail.com
+- 📫 How to reach me,bu my email dromzxcv@gmil.com
 - 😄 Pronouns: i love tea
 - ⚡ Fun fact: he's not here 
 
